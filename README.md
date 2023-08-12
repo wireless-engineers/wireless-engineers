@@ -1,4 +1,4 @@
-# ☁️☁️ Hi ! We are Wireless Engineers Academy for Computer Science Engineering for UC3M ☁️☁️
+# ☁️☁️ Hi ! We are Wireless Engineers, Academy for Computer Science Engineering UC3M ☁️☁️
 # We also offer Language Courses and Private lessons for Schools & High Schools. 
 
 # Our methodology is 100% online
